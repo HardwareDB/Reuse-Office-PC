@@ -1,0 +1,1 @@
+- [Don’t Build a Gaming PC, Do this Instead!](https://youtu.be/WvFJLnRq7mk)
