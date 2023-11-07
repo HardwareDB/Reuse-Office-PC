@@ -5,3 +5,6 @@
 - [The best $300 Gaming PC I've ever built](https://youtu.be/Y2dnqK0XmnA)
 - [Why is Everyone Buying This $320 Gaming PC?!](https://youtu.be/K9rq0JvqpEg)
 - [This Gaming PC is CRAZY Powerful & Cheap! 😍](https://youtu.be/yIPaJfP_z8E)
+
+# Favorite:
+- [We Turned This Tiny Low-Cost HP Office PC Into A Mini Gaming Machine!](https://youtu.be/oRjSSglEKL8)
